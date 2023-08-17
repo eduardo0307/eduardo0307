@@ -14,6 +14,4 @@ Meu nome é Edis Eduardo Buturi
 
   @EdisButuri
 
-  ![](https://media.tenor.com/5lLcKZgmIhgAAAAC/american-psycho-patrick-bateman.gif
-
-![download](https://github.com/eduardo0307/eduardo0307/assets/136746677/0db5dde4-2176-4462-9ced-ee4ceceef2f5)
+  ![](https://media.tenor.com/5lLcKZgmIhgAAAAC/american-psycho-patrick-bateman.gif)![download](https://github.com/eduardo0307/eduardo0307/assets/136746677/0db5dde4-2176-4462-9ced-ee4ceceef2f5)
